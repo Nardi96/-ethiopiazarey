@@ -1,0 +1,2 @@
+# -ethiopiazarey
+ድሮ እና ዘንድሮ
